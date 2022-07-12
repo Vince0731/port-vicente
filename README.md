@@ -5,6 +5,6 @@ As the son of a self proclaimed "talented artist who never reached their potenti
 
 I hope you enjoy my portfolio as much as I enjoyed creating it. Please feel free to interpret and respond to the art however you feel compelled. 
 
-True beaty is noticed when style meets substance.
+True beaty is noticed when style is met with substance.
 
 Cheers!
